@@ -8,7 +8,7 @@
 >
 ✮ she/her but other pronouns is fine with me🪼
 >
-✮ Dabi's simp, and yup, I gatekeep Dabi (Toya Todoroki in MHA)💙
+✮ Dabi's simp (Toya Todoroki in MHA)💙
 >
 ✮ I'm not a yapper, but I can talk to you (I'm just not good at initiating conversations :'P), I can be a good listener (but also not quite good at comforting you and giving you advice if you want it)✨
 >

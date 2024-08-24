@@ -20,7 +20,7 @@
 >
 𐙚 Mostly afk and offtab, you can c+h with me or w2i (sometimes im sleeping, bathing or do sth so i cant reply you immediately, sr abt that;-;) ⭐
 >
-𐙚 You can find me at the torch near the spawner in Vietnamese#1, or sometimes im in the MHA fandom at save sever (not really fixed) 🫧
+𐙚 You can find me near the spawner in Vietnamese#1, or sometimes im in the MHA fandom at save sever (not really fixed) 🫧
  >
 >>>FANDOM ٩̋(ˊ•͈ ꇴ •͈ˋ)و 
 >

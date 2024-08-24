@@ -1,4 +1,6 @@
 - I lost my patreon account so I made this again lol, plz read b4 int🎐
+  >
+  **IM SUPPER SHY**
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 >>>SOME INFORMATION ABOUT ME ₍^ >ヮ<^₎ .ᐟ.ᐟ !!
 >
@@ -28,6 +30,10 @@ MAIN FANDOM: MHA✨
 (idc about other fandoms, but you can int with me if you are JJK, HQ!!, CSM fans)
 >
 I luv Todobros🐍🍰 and TodoBaku🍰💥
+>
+ **IF YOU HAVE DABI? IM GONNA KISS YOU OMGG!!**
+>
+(if you dont mind that, ofc!! or Im not too shy to talk with ya :'3)
 >
 >>> DNI  ૮₍ ˃̵͈᷄ . ˂̵͈᷅ ₎ა 
 >

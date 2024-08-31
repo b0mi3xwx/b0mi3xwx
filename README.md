@@ -41,8 +41,7 @@ I luv Todobros🐍🍰 and TodoBaku🍰💥
 >
 𓇼 MHA fans if you ship All/Dabi/All, Baku/Deku/Baku, Toga/Ocha/Toga...‼️ (friendships is fine!!)
 >
------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
->> here is some of my arts :D Its nice if I can get along with someone whos interested in them:3
+----------------------------------------------------------------------------------------------------------------------are some of my arts :D Its nice if I can get along with someone whos interested in them:3
 >>![Alt Tag](https://i.pinimg.com/originals/3f/9c/99/3f9c99d2ca776f996d2fb6cd9c65c8d6.png)
 >>Todobros 🐍🍰
 >>

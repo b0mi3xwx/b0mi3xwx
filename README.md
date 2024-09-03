@@ -37,7 +37,7 @@ I luv Todobros🐍🍰 and TodoBaku🍰💥
 >
 >>> DNI  ૮₍ ˃̵͈᷄ . ˂̵͈᷅ ₎ა 
 >
-𓇼 Proshiper, zionism, racism, sexism, homophobics, animal abused,...‼️
+𓇼 Proshipper, zionism, r4cism, s3xism, homophobics, animal abused,...‼️
 >
 𓇼 MHA fans if you ship All/Dabi/All, Baku/Deku/Baku, Toga/Ocha/Toga...‼️ (friendships is fine!!)
 >

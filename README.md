@@ -18,6 +18,7 @@
 >
 ✮ 🎀eng/viet (But I'm not good at English so much:'D Its not my first language after all, so forgive me if I dont answer you or I cant understand what you just said)
 >
+
 >>> ABOUT PONYTOWN (´,,>ω<,,`)♡ 
 >
 𐙚 Mostly afk and offtab, you can c+h with me or w2i (sometimes im sleeping, bathing or do sth so i cant reply you immediately, sr abt that;-;) ⭐
@@ -26,6 +27,10 @@
  >
 >>>FANDOM ٩̋(ˊ•͈ ꇴ •͈ˋ)و 
 >
+
+ >Not a Genshin Impact/Honkai Star Rail fans!! Im just cosplay for my friends, dont misunderstand me!!
+
+
 MAIN FANDOM: MHA✨
 (idc about other fandoms, but you can int with me if you are JJK, HQ!!, CSM fans)
 >

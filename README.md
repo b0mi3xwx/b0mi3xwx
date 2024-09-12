@@ -39,7 +39,7 @@ I luv Todobros🐍🍰 and TodoBaku🍰💥
 >
 𓇼 Proshipper, zionism, r4cism, s3xism, homophobics, animal abused,...‼️
 >
-𓇼 MHA fans if you ship All/Dabi/All, Baku/Deku/Baku, Toga/Ocha/Toga...‼️ (friendships is fine!!)
+𓇼 MHA fans if you ship All/Dabi/All, Baku/Deku/Baku, Toga/Ocha/Toga...‼️ (friendship is fine!!)
 >
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 >>> here are some of my arts :D Its nice if I can get along with someone whos interested in them:3
@@ -53,5 +53,8 @@ I luv Todobros🐍🍰 and TodoBaku🍰💥
 >> My new sketch✨
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 > That's all, my brain is emty now
-      𓆝 𓆟 𓆞 𓆝 𓆟
-I will update later if its necessary:3!!
+
+>    𓆝 𓆟 𓆞 𓆝 𓆟
+
+
+>I will update later if its necessary:3!!

@@ -26,7 +26,7 @@
 >>>FANDOM ٩̋(ˊ•͈ ꇴ •͈ˋ)و 
 >
 
-Not a Genshin Impact/Honkai Star Rail fans!! Im just cosplay for my friends, dont misunderstand me!!
+Not a Genshin Impact/Honkai Star Rail fans!! Im just cosplaying for my friends, dont misunderstand me!!
 
 >
 MAIN FANDOM: MHA✨

@@ -17,7 +17,9 @@
 ✮ 🎀eng/viet (But I'm not good at English so much:'D Its not my first language after all, so forgive me if I dont answer you or I cant understand what you just said)
 >
 
->>> ABOUT PONYTOWN (´,,>ω<,,`)♡ 
+>>> ABOUT PONYTOWN (´,,>ω<,,`)♡
+>
+𐙚 Always cosplay my fav characters, im not gatekeep them so feel free to c+h if you love them>:3
 >
 𐙚 Mostly afk and offtab, you can c+h with me or w2i (sometimes im studying, sleeping, bathing or do sth so i cant reply you immediately, sr abt that;-;) ⭐
 >

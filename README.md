@@ -18,12 +18,12 @@
 >
 ✮ You can talk with me about arts, MHA (ofc cuz I'm a big fan of that M/A), some silly things?... idk if that can help we knowing each other:D✨
 >
-✮ 🎀eng/viet (But I'm not good at English so much:'D Its not my first language after all, so forgive me if I dont answer you or I cant understand what you just said)
+✮ 🎀eng/viet (But I'm not good at English so much:'D Its not my first language after all)
 >
 
 >>> ABOUT PONYTOWN (´,,>ω<,,`)♡
 >
-𐙚 Always cosplay my fav characters, im not gatekeep them so feel free to c+h if you love them>:3
+𐙚 Always cosplay my fav characters, i dont gatekeep them so feel free to c+h if you love them>:3
 >
 𐙚 Mostly afk and offtab, you can c+h with me or w2i (sometimes im studying, sleeping, bathing or do sth so i cant reply you immediately, sr abt that;-;) ⭐
 >
@@ -42,7 +42,7 @@ I luv Todobros🐍🍰 and TodoBaku🍰💥
 >
  **IF YOU HAVE DABI? IM GONNA KISS YOU OMGG!!**
 >
-(if you dont mind that, ofc!! or Im not too shy to talk with ya :'3)
+(if you dont mind that, ofc!! or Im not too shy to talk to ya :'3)
 >
 >>> DNI  ૮₍ ˃̵͈᷄ . ˂̵͈᷅ ₎ა 
 >

@@ -35,7 +35,7 @@ Multifandom✨
 >
 >>> DNI  ૮₍ ˃̵͈᷄ . ˂̵͈᷅ ₎ა 
 >
-𓇼 Proshipper, zionism, r4cism, s3xism, h0mophobics, animal abus3d,...‼️
+𓇼 Proshipper, zionism, r4cism, h0mophobics, animal abus3d,...‼️
 >
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 >>> here are some of my arts :D Its nice if I can get along with someone whos interested in them:3

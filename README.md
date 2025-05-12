@@ -12,7 +12,7 @@
 >
 ✮ Any pronouns🪼
 >
-✮ Dabi's simp (Toya Todoroki in MHA)💙
+✮ Dabi and Raihan's simp (Toya Todoroki in MHA)💙
 >
 >
 ✮ 🎀eng/viet
@@ -27,8 +27,7 @@
 >>>FANDOM ٩̋(ˊ•͈ ꇴ •͈ˋ)و 
 
 >
-MAIN FANDOM: MHA✨ and CRK✨
-(idc about other fandoms, but you can int with me if you are JJK, HQ!!, CSM fans)
+Multifandom✨
 >
  **IF YOU HAVE DABI? IM GONNA KISS YOU OMGG!!**
 >

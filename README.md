@@ -12,7 +12,7 @@
 >
 ✮ Any pronouns🪼
 >
-✮ Dabi and Raihan's simp (Toya Todoroki in MHA)💙
+✮ Dabi and Raihan's simp 
 >
 >
 ✮ 🎀eng/viet

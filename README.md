@@ -20,10 +20,11 @@
 
 >>> ABOUT PONYTOWN (´,,>ω<,,`)♡
 >
-𐙚 Mostly afk and offtab, you can c+h with me or w2i⭐
+𐙚 always afk and offtab, you can c+h with me or w2i⭐
+
+ >Im not talkative, forgive me
 >
-𐙚 You can find me near the spawner in Vietnamese#1, or sometimes im in the MHA fandom at save sever🫧
- >
+
 >>>FANDOM ٩̋(ˊ•͈ ꇴ •͈ˋ)و 
 
 >

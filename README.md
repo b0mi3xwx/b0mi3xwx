@@ -15,7 +15,7 @@
 ✮ Dabi and Raihan's simp 
 >
 >
-✮ 🎀eng/viet
+✮ 🎀english is not my first language💔
 >
 
 >>> ABOUT PONYTOWN (´,,>ω<,,`)♡

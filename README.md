@@ -28,7 +28,7 @@
 >>>FANDOM ٩̋(ˊ•͈ ꇴ •͈ˋ)و 
 
 >
-Multifandom✨
+Non-fandom✨
 >
  **IF YOU HAVE DABI? IM GONNA KISS YOU OMGG!!**
 >
@@ -48,8 +48,6 @@ Multifandom✨
 >>![Alt Tag](https://i.pinimg.com/originals/86/ea/81/86ea8165dc35fc848644a5a0c42a37b0.png)
 >> Art collab 1 pallete and artists with my friends on facebook ✨
 >>
->> ![Alt Tag](https://i.pinimg.com/originals/82/9e/4d/829e4d2a8181a9fc88dddef1c8b8a2d4.jpg)
->> My sketch✨
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 That's all, my brain is emty now
 >
